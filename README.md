@@ -1,0 +1,1 @@
+# vk-capsule-mini-a113x-research
